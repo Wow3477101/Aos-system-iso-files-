@@ -1,8 +1,10 @@
-Hello i am the owner of Andland OS we make owr first life of code https://wow3477101.github.io/Andlandos-system-iso-files-/ this file is v1.1 unstable sometimes this web site can crash but report that bug to me and we will fix it this is the dev version not stable use and the password is 1234 
+Say to say 1.1 is gone, and it's fun developing stuff in 1.1, we move to 1.2 dev so test that. I am sorry for the issues, and have fun 
 
 
+Also, this is a reminder that the updates move on one by one, so 1.1 is gone, and 
 
-welcome to version 1.2 here is the link https://wow3477101.github.io/Andlandos-system-iso-files-/index2.html
+We hope that you and your friends move one by one, so that we can save 1.1  
 
+And I will see you guys later 
 
-https://wow3477101.github.io/Andlandos-system-iso-files-/index3.html 1.3 
+by AOS Alexzpro script dev owner by C++, Java, and Python 
